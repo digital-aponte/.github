@@ -1,0 +1,1 @@
+Digital Aponte is a project dedicated to the life and work of José Antonio Aponte, a free man of color, carpenter, artist, and alleged leader of a massive antislavery conspiracy and rebellion in colonial Cuba in 1811-1812.
